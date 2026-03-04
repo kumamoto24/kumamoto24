@@ -17,5 +17,5 @@
 
 ### 🤝 Connect with me
 - [Email](mailto:kumakumamoto24@gmail.com)  
-- [LinkedIn](www.linkedin.com/in/-838546346)  
+- [LinkedIn](https://www.linkedin.com/in/-838546346)  
 - [Discord](https://discord.gg/Tznds3ga)
